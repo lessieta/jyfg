@@ -1,7 +1,6 @@
 # jyfgv,
 tgfjghj
 ghkj
-dfjhfgjdfrtyidf
-fgjfgjdfsgx
+dfjhfgjdfrtyidfc
 ulnb
 erherh
